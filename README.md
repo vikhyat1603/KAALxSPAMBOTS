@@ -1,7 +1,7 @@
 <h1 align="center"><b>😈
-𝙏𝙝𝙚𝗞𝗮𝗮𝗹𝙎𝙥𝙖𝙢 🔥💫 😈</b></h1>
+MEMIC SQUAD OP BOLTE🔥💫 😈</b></h1>
 
-<h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
+<h4 align="center"> #JOKER_OP @MEMIC_SQUAD</h4>
 
 <p align="center"><a href="https://t.me/raj_singh_rc"><img src="https://te.legra.ph/file/fd2cbade34ff0dc8b2f2a.jpg" width="400"></a></p>
 
